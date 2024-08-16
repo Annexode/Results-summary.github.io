@@ -1,1 +1,0 @@
-# Results-summary-Day-2-16th-August-2024
